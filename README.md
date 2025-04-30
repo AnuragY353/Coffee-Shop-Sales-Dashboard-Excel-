@@ -75,6 +75,6 @@ To demonstrate skills in data analysis and visualization using Excel by providin
 
 ## 📬 Contact
 
-For any feedback or suggestions, feel free to reach out via [LinkedIn](https://www.linkedin.com) or email.
+For any feedback or suggestions, feel free to reach out via ayesansure353@gmail.com .
 
  
